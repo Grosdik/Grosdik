@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Grosdik
+- 👀 This is a very cringe place.
